@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @VIVEK2863
+- 👋 Hi, I’m @VIVEKPIPPALLA
 - 👀 I’m not interested in ...
 - SOMEWHERE IN PARALLEL UNIVERSE
